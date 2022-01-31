@@ -1,2 +1,6 @@
 # das-kapitaal-vernietiging
+
 2009-2022
+
+# staat der nederlanden
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
